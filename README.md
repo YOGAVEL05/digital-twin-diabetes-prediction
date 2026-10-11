@@ -159,7 +159,7 @@ St.Joseph's college of engineering
 - Team Leader — SUDHAKAR T K
 - Member 2 — THARUN BALAJI
 - Member 3 — Thilakan S
-- Member 4 — Yogavel D
+- Member 4 — YOGAVEL D
 
 ---
 
